@@ -1,2 +1,0 @@
-# cuddly-octo-memory
-хзз
